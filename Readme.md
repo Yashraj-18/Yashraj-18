@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **jaiswalyashraj18@gmail.com**
 
-- ⚡ Fun fact **I think I can code.**
+- ⚡ Fun fact **I can code.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
